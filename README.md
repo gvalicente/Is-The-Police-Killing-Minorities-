@@ -1,4 +1,4 @@
-# Police-Shooting-Washington-Post
+# Is-The-Police-Killing-Minorities?
 Police Shooting Washington Post
 
 Police Shooting Insights
